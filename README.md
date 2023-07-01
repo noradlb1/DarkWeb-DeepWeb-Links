@@ -13,7 +13,7 @@ http://hiddenm2qjnb7bthhj7p5fclfix7wujyvo7d736en5nak6hfpzj4ybqd.onion/
 
 == ==
 
-![image](https://github.com/noradlb1/DarkWeb-DeepWeb-Links/assets/74623428/a23d996a-5e93-41da-81a3-ffb8344a4e1c)
+
 
 ![image](https://github.com/noradlb1/DarkWeb-DeepWeb-Links/assets/74623428/c0ebf6c3-487f-42d6-8f09-c350cb81ec5f)
 
