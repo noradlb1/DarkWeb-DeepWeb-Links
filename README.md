@@ -6,6 +6,26 @@ I am not responsible for any misuse
 
 
 -- --
+-- --
+
+ Clear Net Tor Search Engine  
+ 
+![image](https://github.com/noradlb1/DarkWeb-DeepWeb-Links/assets/74623428/d0b679ab-c67c-4870-aa42-bf2c46ad766f)
+
+torseyjlo6kj7k3hw4qnjrsdmdvfnvngouhct7yjimipzeoxezempvid.onion 
+
+-- --
+-- --
+
+Clean Or Safe Secure Shopping Market
+
+http://nemesis55zi33t4ddaqhpgygsenwwugyqf5innwy7uslo7pvxyr34kyd.onion
+
+
+![image](https://github.com/noradlb1/DarkWeb-DeepWeb-Links/assets/74623428/d8b8ee49-01a0-44f4-9240-43460c11c839)
+
+-- --
+-- --
 
 http://2fd6cemt4gmccflhm6imvdfvli3nf7zn6rfrwpsy7uhxrgbypvwf5fad.onion/
 
